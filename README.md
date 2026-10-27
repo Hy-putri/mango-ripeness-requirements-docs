@@ -66,5 +66,5 @@ draw.io · Google Chrome · Claude (AI, sebagai reviewer)
 
 ## Kontak
 
-- LinkedIn: [isi tautan LinkedIn kamu]
-- Email: [isi alamat email kamu]
+- LinkedIn: (https://www.linkedin.com/in/helgayulianiputriaritonang/)
+- Email: helgaaritonang6@gmail.com
